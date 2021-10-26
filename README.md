@@ -1,1 +1,0 @@
-# HiroyukiKurihara.github.io
